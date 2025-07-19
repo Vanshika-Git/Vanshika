@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm a IT student at JIIT University.
+I'm an IT student at JIIT University.
 
 
 ## 🌐 Socials:
